@@ -1,0 +1,1 @@
+# shvad-template3.2
